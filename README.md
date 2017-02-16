@@ -35,6 +35,6 @@ series, as well as taking the series title every year from 1989 to 1993.
 ```
 
 ![SKYLINE](aedd99-GTA5 2015-08-20 15-53-42-96.jpg) 
-![GT-R](2014-Nissan-GT-R-Track-Edition-e1360341974613.jpg)  ![image](Nissan-Skyline-Gtr-R35-Wallpaper-HD-Background.jpg)
+![GT-R](2014-Nissan-GT-R-Track-Edition-e1360341974613.jpg) ![image](Nissan-Skyline-Gtr-R35-Wallpaper-HD-Background.jpg)
 ![SKyLINE GTR](8e4e1b953587021da0ce26acf9279771.jpg)
 ![back picture](1010430bffd03d9df0cfe9f546455c46.jpg)
